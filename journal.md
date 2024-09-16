@@ -1,4 +1,4 @@
-# septmber 10, 2024
+# september 10, 2024
 This is a practice entry
 
 # september 6, 2024
