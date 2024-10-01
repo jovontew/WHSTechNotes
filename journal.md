@@ -12,3 +12,6 @@ The procces on the github set up was really good. And it was really easy to set 
 This is a free week
 
 # september 20,2024
+
+# october 1, 2024
+computer science can play a role in my life because we learn stuff and we learn how to do things in computer science.
