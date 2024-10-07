@@ -16,3 +16,6 @@ following code steps is important because the code needs to be right to be to ma
 
 # october 1, 2024
 computer science can play a role in my life because we learn stuff and we learn how to do things in computer science.
+
+# october 7, 2024
+A job in computer scienece i like is software developer because cause they test software programs,a profesional who designs. I like this because it is something not to much and is cool.This is a job I like in computer scienece.
