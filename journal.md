@@ -11,7 +11,7 @@ The procces on the github set up was really good. And it was really easy to set 
 # september 18, 2024
 This is a free week
 
-# september 24,2024
+# september 24, 2024
 following code steps is important because the code needs to be right to be to make it it do something. following the steps are important because they can help you. thats why steps are important to follow.
 
 # october 1, 2024
