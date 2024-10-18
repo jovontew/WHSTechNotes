@@ -19,3 +19,6 @@ computer science can play a role in my life because we learn stuff and we learn 
 
 # october 7, 2024
 A job in computer scienece i like is software developer because cause they test software programs,a profesional who designs. I like this because it is something not to much and is cool.This is a job I like in computer scienece.
+
+# october 18,2024
+you can use coding to help develop automated workflows, regardless of the industry you're in. 
