@@ -22,3 +22,6 @@ A job in computer scienece i like is software developer because cause they test 
 
 # october 18,2024
 you can use coding to help develop automated workflows, regardless of the industry you're in. 
+
+# october 21,2024
+Ai can help improve the way people live my showing people how to get jobs. Helping people learn how to work things. And can help people make money.
