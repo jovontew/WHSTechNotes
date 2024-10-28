@@ -25,3 +25,6 @@ you can use coding to help develop automated workflows, regardless of the indust
 
 # october 21, 2024
 Ai can help improve the way people live my showing people how to get jobs. Helping people learn how to work things. And can help people make money.
+
+# october 28, 2024
+technology can help with the elcetion by showing people how important it is to vote. And it can help give information about a person you would like to vote for.Thats why I think electronics and technology can help with this election.
