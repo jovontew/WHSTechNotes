@@ -28,3 +28,6 @@ Ai can help improve the way people live my showing people how to get jobs. Helpi
 
 # october 28, 2024
 technology can help with the elcetion by showing people how important it is to vote. And it can help give information about a person you would like to vote for.Thats why I think electronics and technology can help with this election.
+
+# november 4, 2024
+while posting work it is important to keep your personal info safe.I would make sure its safe by making sure non of my info is in anything of what im submitting.no i have not submitted anything online that was personal.not telling people to much or showing to much.
