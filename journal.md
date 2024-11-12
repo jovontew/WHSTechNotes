@@ -31,3 +31,6 @@ technology can help with the elcetion by showing people how important it is to v
 
 # november 4, 2024
 while posting work it is important to keep your personal info safe.I would make sure its safe by making sure non of my info is in anything of what im submitting.no i have not submitted anything online that was personal.not telling people to much or showing to much.
+
+# november 12, 2024
+A event that intrest me in playing the game.You can learn how to controll things and use different stuff. playing the game can be an example of computer science because people coded the game.
