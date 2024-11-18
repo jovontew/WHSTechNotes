@@ -34,3 +34,6 @@ while posting work it is important to keep your personal info safe.I would make 
 
 # november 12, 2024
 A event that intrest me in playing the game.You can learn how to controll things and use different stuff. playing the game can be an example of computer science because people coded the game.
+
+# november 18, 2024 
+We buy things through technology like food and things. I dont think ther is a problem with relying on technology. But things can be more expensive things on technology.
