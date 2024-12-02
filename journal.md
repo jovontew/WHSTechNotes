@@ -37,3 +37,6 @@ A event that intrest me in playing the game.You can learn how to controll things
 
 # november 18, 2024 
 We buy things through technology like food and things. I dont think ther is a problem with relying on technology. But things can be more expensive things on technology.
+
+# december 2, 2024
+Ive learned that we use ai everyday and that it is important in alot of situations. we use ai in our everyday lifes by using emails, translating languages and other everyday things. Ai is a good and positive thing for our everyday life.
