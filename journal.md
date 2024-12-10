@@ -40,3 +40,7 @@ We buy things through technology like food and things. I dont think ther is a pr
 
 # december 2, 2024
 Ive learned that we use ai everyday and that it is important in alot of situations. we use ai in our everyday lifes by using emails, translating languages and other everyday things. Ai is a good and positive thing for our everyday life.
+
+# december 9, 2024 
+Brainrot is the supposed deterioration of a person's mental or intellectual state. people talking or using the words in the media. yes because by not viewing stuff with brainrot.
+
