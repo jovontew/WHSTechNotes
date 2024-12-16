@@ -44,3 +44,5 @@ Ive learned that we use ai everyday and that it is important in alot of situatio
 # december 9, 2024 
 Brainrot is the supposed deterioration of a person's mental or intellectual state. people talking or using the words in the media. yes because by not viewing stuff with brainrot.
 
+# december 16, 2024
+yes I am looking foward to winter break.
