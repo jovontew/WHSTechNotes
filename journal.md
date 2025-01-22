@@ -50,5 +50,10 @@ yes I am looking foward to winter break.
 # january 8, 2025
 I enjoyed the work being easy and the class being chill.I dont think there is nothing to change.
 
-# january 13, 2024
+# january 13, 2025
 I think AI enhances how people work for more oppurtunites to better there work. Ai can help with qestions and alot of things. Thats what I think about that.
+
+# january 22, 2025
+they can make ther website more safe for people. I can use thus for something if I have my own website like it. I would create a way that can make people use the app have a privacy mode when they get the app.
+
+
