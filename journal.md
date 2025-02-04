@@ -56,4 +56,5 @@ I think AI enhances how people work for more oppurtunites to better there work. 
 # january 22, 2025
 they can make ther website more safe for people. I can use thus for something if I have my own website like it. I would create a way that can make people use the app have a privacy mode when they get the app.
 
-
+# febuary 3, 2024
+To check the plane and make sure everything is secure. Make sure everything is where its need to be and everything is right. Thats what I think to be more safe.
