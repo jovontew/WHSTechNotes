@@ -56,5 +56,9 @@ I think AI enhances how people work for more oppurtunites to better there work. 
 # january 22, 2025
 they can make ther website more safe for people. I can use thus for something if I have my own website like it. I would create a way that can make people use the app have a privacy mode when they get the app.
 
-# february 3, 2024
+# february 3, 2025
 To check the plane and make sure everything is secure. Make sure everything is where its need to be and everything is right. Thats what I think to be more safe.
+
+# february 24, 2025
+digital tools can revolutionise both student engagement and, on a more practical level, lesson planning and the use of classroom resources.helps educators identify gaps in student knowledge and provide targeted feedback to improve learning outcomes. Understanding when to use slang and when to use more formal language.It can lead to misunderstandings or miscommunications.
+
