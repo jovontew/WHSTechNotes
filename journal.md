@@ -62,3 +62,5 @@ To check the plane and make sure everything is secure. Make sure everything is w
 # february 24, 2025
 digital tools can revolutionise both student engagement and, on a more practical level, lesson planning and the use of classroom resources.helps educators identify gaps in student knowledge and provide targeted feedback to improve learning outcomes. Understanding when to use slang and when to use more formal language.It can lead to misunderstandings or miscommunications.
 
+# march 31, 2025
+I am feeling good, the work , chill, to pass ,i talk to my mom cause the shes cool.
