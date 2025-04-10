@@ -65,5 +65,5 @@ digital tools can revolutionise both student engagement and, on a more practical
 # march 31, 2025
 I am feeling good, the work , chill, to pass ,i talk to my mom cause the shes cool.
 
-# april 7,2025
+# april 7, 2025
 Once the material is in, the AI can generate practice questions. It can help by giving you answers to questions with worked showed. Thats why I think it can help.
