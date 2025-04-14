@@ -67,3 +67,6 @@ I am feeling good, the work , chill, to pass ,i talk to my mom cause the shes co
 
 # april 7, 2025
 Once the material is in, the AI can generate practice questions. It can help by giving you answers to questions with worked showed. Thats why I think it can help.
+
+# april 14, 2025
+sum bans can be good for the student and some can be bad for students. these policies can boost behavior issue make students better or worse. I would not really know what to say about this.
