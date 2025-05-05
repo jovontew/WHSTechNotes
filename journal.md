@@ -70,3 +70,6 @@ Once the material is in, the AI can generate practice questions. It can help by 
 
 # april 14, 2025
 sum bans can be good for the student and some can be bad for students. these policies can boost behavior issue make students better or worse. I would not really know what to say about this.
+
+# may 5, 2025
+I dont think the men could win because the gorilla is big. It can be responsible as a joke but they should not try this. This says that anything can go big online.
