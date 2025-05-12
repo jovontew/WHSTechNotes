@@ -73,3 +73,6 @@ sum bans can be good for the student and some can be bad for students. these pol
 
 # may 5, 2025
 I dont think the men could win because the gorilla is big. It can be responsible as a joke but they should not try this. This says that anything can go big online.
+
+# may 12, 2025
+I think the chromebook challenge is not safe because it can cause smoke and it could a hazard to people health because of the smpke.I think people should not do this because it is very unsafe.
