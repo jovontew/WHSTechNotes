@@ -76,3 +76,6 @@ I dont think the men could win because the gorilla is big. It can be responsible
 
 # may 12, 2025
 I think the chromebook challenge is not safe because it can cause smoke and it could a hazard to people health because of the smpke.I think people should not do this because it is very unsafe.
+
+# may 19, 2025
+yes i am ready for summer
